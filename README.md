@@ -1,3 +1,5 @@
 # EXERCICIO-EQS
 
 # ATIVIDADE
+
+ESQ-e muito  bom
